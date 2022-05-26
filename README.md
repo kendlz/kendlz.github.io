@@ -1,2 +1,0 @@
-# kendlz.github.io
-Kendlz
